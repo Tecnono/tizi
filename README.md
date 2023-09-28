@@ -46,7 +46,7 @@ Express VPN的营销推广能力在业内是首屈一指的，基本大大小小
 
 Nord的一大优点是它内置有恶意软件和广告的拦截器，也就是能在访问过程当中帮用户拦截恶意广告，这个功能在其他VPN中是不具备的，也算是一个独家优势。
 
-![image]（https://idealogeek.fr/wp-content/uploads/2020/10/logo-nordvpn.jpg）
+![image](https://idealogeek.fr/wp-content/uploads/2020/10/logo-nordvpn.jpg)
 
 其他的就和上面两款差不多的，好奇的朋友可以试一下。
 
