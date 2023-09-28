@@ -31,7 +31,7 @@ NiceClou 梯子在业界也是一个老品牌了，最大的优点在我看来�
 ### 2.Express VPN
 简介：如果还不知道这款梯子的朋友，那我敢百分百确定他是一个新手。Express在业界的名气就等于是篮球界的耐克。用一句话概括起来就是除了贵也没什么别的缺点了。
 
-![image](https://nimg.ws.126.net/?url=http%3A%2F%2Fcms-bucket.nosdn.127.net%2Fcatchpic%2F0%2F05%2F0512abcdc4ebab29e61a017e4445ad35.jpg&thumbnail=660x2147483647&quality=80&type=jpg)
+![image](https://cdn.windowsreport.com/wp-content/uploads/2020/04/expressvpn.png)
 
 Express VPN的营销推广能力在业内是首屈一指的，基本大大小小和翻墙沾边的网站都有它的广告，可能也是广告费这一块儿的开销太大，导致了他定的价格非常高，有多高？三层楼那么高咯。
 
