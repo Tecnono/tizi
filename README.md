@@ -1,5 +1,5 @@
 # 适合中国大陆的四款手机电脑通用梯子，靠谱稳定性价比高
-翻墙梯子推荐,PC/Mac/iPhone,好用梯子下载,海外加速器梯子,iPhone/iPad/安卓/Android/Mac/Linux/PC/路由器都可以用的梯子电脑梯子, 推荐梯子软件,靠谱的便宜梯子,clash梯子,shadowrocket梯子,小火箭梯子,Google/YouTube/Facebook/Twitter等外网梯子
+翻墙梯子推荐,PC/Mac/iPhone,便宜好用梯子下载,海外加速器梯子,iPhone/iPad/安卓/Android/Mac/Linux/PC/路由器都可以用的梯子电脑梯子, 推荐梯子软件,靠谱的便宜梯子,clash梯子,shadowrocket梯子,小火箭梯子,Google/YouTube/Facebook/Twitter等外网梯子
 
 **这是一份还算比较负责任的好用翻墙机场梯子推荐指南，现在市面上VPN品牌着实是太多了，很多人都看花了眼，平均每天都会有几个新的机场梯子冒出头，也会有不知道多少个机场梯子落幕，在这么繁多的品牌当中，我们选梯子VPN的要求除了速度之外，就只有一个标准，除了稳定，还是得稳定。**
 
